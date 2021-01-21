@@ -1,0 +1,1 @@
+Take a bar of maggi noodles and soak it into pan of boiling water . 

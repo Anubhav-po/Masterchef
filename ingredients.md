@@ -1,0 +1,1 @@
+A maggi packet , some hot water , vegetables
